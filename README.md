@@ -2,7 +2,10 @@
 
 # 𓂃 ࣪ ✽ ˒ . names
 
-Cinna (mainly .) , rotten , moon , cinnamon
+* Cinna (mainly.)
+* rotten
+* moon
+* cinnamon
 
 ## ˖˚˳♡ . About Me
 

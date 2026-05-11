@@ -20,11 +20,11 @@
 * abyss monarch cookie
 * Longan dragon cookie
 * bamboo blade cookie
-* blackberry cookie
+* blackberry cookie (non-yume)
 * Mafioso
 * Timekeeper cookie
 * Doughael
-
+  mangle (non-yume)
 ## ₊˚ෆ . dnis
 
 * basic criteria

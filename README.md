@@ -29,7 +29,7 @@
 
 * basic criteria
 * yumeship doubles
-* shadow milk fans
+* shadow milk and eternal sugar fans
 * forsaken fans
 
 ## 𓂃˖♪彡 . if you wanna be friends

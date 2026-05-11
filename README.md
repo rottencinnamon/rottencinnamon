@@ -1,7 +1,6 @@
 ![wow](https://files.catbox.moe/ppq6qn.png)
 
-# :¨ ·.· ¨:
-`· . ୨୧ . names
+# 𓂃 ࣪ ✽ ˒ . names
 
 Cinna (mainly .) , rotten , moon , cinnamon
 

@@ -26,6 +26,10 @@
 * Doughael
 * mangle (non-yume)
 * moonlight cookie
+* hyperlaser
+* medkit
+* subspace
+* traffic
 ## ₊˚ෆ . dnis
 
 * basic criteria

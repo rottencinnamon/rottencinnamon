@@ -13,6 +13,8 @@
 * Prns : she / her
 * berriromantic - aego aroace
 * Trust and anger issues
+* introvert
+* i'm not talkative unless i'm with close friends
 
 ## ˖˚˳♡ . comfort characters / yumes
 

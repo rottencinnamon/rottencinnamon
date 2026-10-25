@@ -1,4 +1,7 @@
-![wow](https://cdn.corenexis.com/f/dB4Ndih2y5q.png)
+<div align="center">
+  <img src="https://files.catbox.moe/5owzyu.webp" width="100%" />
+</div>
+
 no rentry— i don't support zionists 𐔌՞. .՞𐦯
 <details>
 <summary> 𓂃 ࣪ ✽ ˒ . names</summary>
@@ -43,5 +46,3 @@ no rentry— i don't support zionists 𐔌՞. .՞𐦯
 * Roblox : " r_ockstar86 "
 * PLEASE iwc i am VERY anxious and socially awkward when meeting new people , send me a whisper at best !! if i don't answer, i'm not interested
 </details>
-
-  ![wow](https://cdn.corenexis.com/f/83NcaVTtQ2d.png)

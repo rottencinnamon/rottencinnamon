@@ -33,7 +33,7 @@ no rentry— i don't support zionists 𐔌՞. .՞𐦯
 
 * people who like the ships i hate
   
-* shadow milk / eternal sugar / milky way fans
+* shadow milk / milky way fans
 
 * people over 18 and under 13
   

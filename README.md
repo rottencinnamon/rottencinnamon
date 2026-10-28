@@ -45,3 +45,13 @@ no rentry— i don't support zionists 𐔌՞. .՞𐦯
 * Roblox : " r_ockstar86 "
 * PLEASE iwc i am VERY anxious and socially awkward when meeting new people , send me a whisper at best !! if i don't answer, i'm not interested
 </details>
+
+  <details>
+<summary> ˚ ༘ ೀ⋆｡˚ ships i like</summary>
+
+* SeaMoon
+* MysticSugar
+* MintCocoa
+* GoldenBerry
+i might add more idk i cant think of anything else rn
+</details>

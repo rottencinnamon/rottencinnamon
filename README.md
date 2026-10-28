@@ -16,7 +16,6 @@ no rentry— i don't support zionists 𐔌՞. .՞𐦯
 <summary> ˖˚˳♡ . About Me</summary>
 
 * age : 16
-* Prns : she / her | **comfortable with they / them**
 * questioning my sexuality
 * Trust and anger issues
 * introvert

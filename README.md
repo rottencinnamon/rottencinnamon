@@ -31,8 +31,6 @@ no rentry— i don't support zionists 𐔌՞. .՞𐦯
 * yumeship doubles
 
 * people who like the ships i hate
-  
-* shadow milk ( + his minions ) / milky way fans
 
 * people over 18 and under 13
   
